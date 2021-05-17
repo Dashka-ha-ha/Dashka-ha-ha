@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Dashka-ha-ha
+- 👀 I’m interested in web development
+- 🌱 I’m currently in college. 
+- 🌈 Specialty: web and multimedia application development
+- 💞️ I want to work with start-up companies
+- 📫 email: m.dasha.a23@gmail.com
